@@ -1,1 +1,0 @@
-# richard_open_net_for_anti_censorship
